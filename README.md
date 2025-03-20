@@ -1,6 +1,7 @@
 # **Best Bible Verses for Athletes: Strength, Endurance, and Faith**  
 
 Athletes often face physical and mental challenges that require determination, resilience, and perseverance. The Bible offers inspiration, encouragement, and wisdom to help athletes stay focused and motivated. Whether you’re training, competing, or recovering from a setback, these powerful Bible verses can strengthen your faith and keep you moving forward.  
+https://bibleverses4today.blogspot.com/2025/03/good-bible-verses-about-athletes.html
 **Bible Verses About Strength for Athletes**  
  **1. Philippians 4:13**  
 *"I can do all things through Christ who strengthens me."*  
